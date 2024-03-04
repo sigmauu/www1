@@ -1,1 +1,1 @@
-Get good at fortnite nerds
+Get good at fortnite idiots
